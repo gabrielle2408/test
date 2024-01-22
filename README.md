@@ -16,7 +16,9 @@
 
 ### Elle apprit également à reconnaître les tentatives de phishing et à ne jamais cliquer sur des liens suspects.
 
-### Elle comprit que la vigilance était essentielle pour se protéger dans le monde numérique. 
+### Elle comprit que la vigilance était essentielle pour se protéger dans le monde numérique.
+
+### the end. 
 
 ### Grâce à ses nouvelles connaissances, Gabrielle réussit à sécuriser son compte en ligne et à empêcher toute intrusion future.
 

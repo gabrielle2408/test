@@ -6,3 +6,8 @@
 
 ### Des pirates informatiques avaient réussi à s'introduire dans son compte en ligne et à voler ses informations personnelles.
 
+### Gabrielle, déterminée à protéger ses données et à comprendre comment cela avai>
+
+### Elle commença à lire des articles, à regarder des vidéos et à participer à des>
+
+### pour apprendre les bonnes pratiques en matière de sécurité informatique.
